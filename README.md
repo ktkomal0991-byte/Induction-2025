@@ -5,9 +5,20 @@ From 8:30 to 9:30 we went to Gurudwara Sahib which was of boat shape from outsid
 
 Mr Arshpreet Singh-automation Engineer in Gurugram(IT).He said about proper balancing in life, brushing up our skills,never underestimate ourselfand becoming a T-shape engineer.
 
+
 Mrs Harpreet Kaur grewal(HOD) Department of applied sciences.Her message was having independent mindset, meaningful life and society contribution which will be a step stone for us. College has completed its 70 years of excellence. We need to give our 100% input for 100% output.She said that 1st year is like a bridge between school life and College life.Placement depends upon our sincerity in 4 hears of btec( it should be our zeal to achieve success, placement etc). 
-4) Dr Parminder Singh-He mentored us to dream big ,work hard and it will definitely come true. 5) Dr sahejpal Singh(Principal)- Taught about regular study, extracurricular activities, respect teachers,have confidence in god and ultimately we will be a good technocrat and good human. 
-6) Dr Kulwinder Singh maan told that was event managed by applied sciences. 7) Dr sahejpal Singh 8) Mr Ashok Singla( Financial advisor) He vanished the stress of money by telling about Vidya-Laxmi education loan upto 4 lakhs. 8) Dr Rakesh Kumar(1991 batch)- ADC of Ludhiana. Then we went to Different labs where we gonna spend our upcoming years and feel like top engineers.
+
+
+4) Dr Parminder Singh-He mentored us to dream big ,work hard and it will definitely come true.
+
+ 5) Dr sahejpal Singh(Principal)- Taught about regular study, extracurricular activities, respect teachers,have confidence in god and ultimately we will be a good technocrat and good human.
+
+  
+6) Dr Kulwinder Singh maan told that was event managed by applied sciences.
+
+ 7) Dr sahejpal Singh 8) Mr Ashok Singla( Financial advisor) He vanished the stress of money by telling about Vidya-Laxmi education loan upto 4 lakhs.
+
+ 8) Dr Rakesh Kumar(1991 batch)- ADC of Ludhiana. Then we went to Different labs where we gonna spend our upcoming years and feel like top engineers.
 Last line-College is not about studying,it is about discovering ourselves.
 
 # Day 2(1st August 2025)
